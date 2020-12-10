@@ -1,1 +1,3 @@
 # cinicilergida
+not finished. waiting for index text, staff, about us etc. from boss
+P.S. dont fill and submit the form...
